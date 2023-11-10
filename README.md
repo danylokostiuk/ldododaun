@@ -1,2 +1,2 @@
 # ldododaun
-fdcvujffgytvhjkfgvyhkasedfwrsgvEdafHB
+я писав компаньойн виправляв
